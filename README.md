@@ -1,7 +1,7 @@
 # Invitacion-a-ver-SPIDER-MAN-NO-WAY-HOME
 									Espero te sirva
 
-		[![pagina.png](https://i.postimg.cc/nV0YsJk3/pagina.png)](https://postimg.cc/c6t8jPP3)
+   [![pagina.png](https://i.postimg.cc/nV0YsJk3/pagina.png)](https://postimg.cc/c6t8jPP3)
 
 > Primer paso:
 > 
